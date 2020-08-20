@@ -28,9 +28,9 @@ Open the terminal and type following commands!!!
 
 After This Commands Enter Your Details And Enjoy😊😊
 
-#HOW TO USE
+#HOW TO USE VIDEO
 
-<iframe src="https://youtu.be/vuztwnQfndA" width="100%" height="70%"></iframe>
+ttps://youtu.be/vuztwnQfndA
 
 #YOUTUBE CHANNEL
 
